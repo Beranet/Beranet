@@ -2,6 +2,7 @@
 
 Hi, I'm Lucas Berard.
 I'm a simple tech recruiter making his way through the galaxy.
+
 I recruit python developers for different types of companies (start-ups, SMEs, scale-ups, large groups).
 
 You can say hello to me on
