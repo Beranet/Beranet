@@ -14,7 +14,7 @@ or by email at lucas.berard@mobiskill.fr 📫 👋🏼
 - 🎓 Double Master degree at Rennes School of Business (PGE/MSc International human resources management)
 - 👾 about 3 years of experience in recruitment / sales position
 - 🎠 love being part of the tech ecosystem
-- 👔 working full time a Mobiskill
+- 👔 working full time at Mobiskill
 
 ## 🐍 Les postes Python du moment :
 
