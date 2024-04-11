@@ -9,7 +9,7 @@ You can say hello to me on
 [LinkedIn](https://www.linkedin.com/in/lucas-berard-5a4653241/),
 or by email at lucas.berard@mobiskill.fr 📫 👋🏼
 
-## 🪐 À propos de moi :
+## ⛷️ À propos de moi :
 
 - 🎓 Double Master degree at Rennes School of Business (PGE/MSc International human resources management)
 - 👾 about 3 years of experience in recruitment / sales position
