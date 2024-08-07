@@ -7,7 +7,7 @@ I recruit python developers for different types of companies (start-ups, SMEs, s
 
 You can say hello to me on
 [LinkedIn](https://www.linkedin.com/in/lucas-berard-5a4653241/),
-or by email at lucas.berard@mobiskill.fr 📫 👋🏼
+or by email at berard.lucas23@gmail.com 📫 👋🏼
 
 ## ⛷️ À propos de moi :
 
